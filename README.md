@@ -7,4 +7,4 @@
 
 ### Portfólio Online  
 🔗 [Acesse o Portfólio](https://brunohenrique022.github.io/ra2581392413041/)
-🎤 [Pitch de Apresentação (vídeo)](https://1drv.ms/v/c/29572164613ef410/IQCFov6z47HQSZlgV11WyTWQAfulp2G46BfjSeIiEsJEK54?e=0IbS2y)
+🎤 [Pitch de Apresentação (vídeo)](https://youtu.be/0YpjeM70fuA)
